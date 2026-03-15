@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SADA650803HMCNZM09
+SADA650803HMCNZM09
